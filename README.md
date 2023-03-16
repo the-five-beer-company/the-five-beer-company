@@ -1,3 +1,3 @@
-# the-five-beer-company
+# the_five_beer_company
 
 ㅇㅀㅇㅀㅇㅀ
